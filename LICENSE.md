@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft sniper bot with updated nft sniper bot | mint-detection + profit-calculator. Featuring mint-detection and profit-calculator, it's the best choice for
 
 
 
